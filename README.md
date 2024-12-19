@@ -13,3 +13,5 @@ Art references
 1. Dune: On the complex relationship between technological progress and environmental protection, human nature and artificial evolution.
 2. The Wandering Earth: Technology is both a salvation and a threat in the climate crisis.
 3. Avatar: Depicts human exploitation of a new planet's natural resources, ultimately leading to ecological conflict and collapse.
+
+The video is a big file, unable to upload this site
